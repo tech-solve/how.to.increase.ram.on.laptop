@@ -1,7 +1,7 @@
 # How to Increase RAM on Laptop?
 
 
-[![how to change photo background](redd.png)](https://github.com/tech-solve/how.to.increase.ram.on.laptop)
+[![how to change photo background](redd.png)](https://icncomputer.com/how-to-increase-ram-on-laptop-for-free/)
 
 
 
